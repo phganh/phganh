@@ -3,7 +3,7 @@
 
 🆔 Anh Phg Trinh || Coconuttt <br>
 🧠 Information Technology major <br>
-🎓 York University🍁 <br>
-   Seattle Central College🗽 <br>
 💬 English, Vietnamese <br>
 🚀 Vancouver, Canada
+
+
