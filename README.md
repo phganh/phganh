@@ -5,4 +5,4 @@
 🧠 Information Technology major <br>
 💬 English, Vietnamese <br>
 🚀 Vancouver, Canada
-https://user-images.githubusercontent.com/17074372/105450181-f3580f00-5c47-11eb-9b2b-edc3ff12f9f0.mp4
+!https://user-images.githubusercontent.com/17074372/105450181-f3580f00-5c47-11eb-9b2b-edc3ff12f9f0.mp4
