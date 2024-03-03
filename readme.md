@@ -1,5 +1,7 @@
-🆔 Anh Phg Tran (Ashley) || Coconuttt <br>
-🧠 Seattle Central College🇺🇸 - York University🇨🇦 <br>
-💬 English, Vietnamese <br>
-🚀 Vancouver, Canada <br>
-🧬 Web Development Bootcamp's projects account: [@tripleboba](https://github.com/tripleboba)
+<b> Phương Anh </b>
+<sup>
+<sub><i> ~ nope, Phương alone isn't my first name. They come together to complete my first name </i></sub>
+</sup>
+
+📍 Saigonese in Raincouver 🌧️
+
